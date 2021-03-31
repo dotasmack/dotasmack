@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @dotasmack
+- 👀 I’m interested in all things related Dota
